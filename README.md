@@ -2,6 +2,8 @@
 
 FOR GABZ CASINO
 
+credits to MrEvilGamer
+
 Updated and removed old handlers by me!
 Join My Discord ! = 
 https://discord.com/invite/MEDzUG7cAS
