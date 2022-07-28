@@ -1,5 +1,7 @@
 # qb-casinowheel  
 
+FOR GABZ CASINO
+
 Updated and removed old handlers by me!
 Join My Discord ! = 
 https://discord.com/invite/MEDzUG7cAS
